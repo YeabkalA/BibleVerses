@@ -1,5 +1,5 @@
 # Verses for Law and Faith Discussion
-##### Yeabkal, Fajr
+#####  Fajr, Yeabkal
  ###### These points derive from https://bible.org/seriespage/lesson-15-salvation-and-good-works-ephesians-210
  ###### Praise God!!!
 
